@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with Adobe Audition for PC | Adobe Audition for Windows updated Template: voice-enhancement & batch-processing, the #1
 
 
 
